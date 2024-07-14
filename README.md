@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working on **MY SELF**
 
-- 📫 How to reach me **nantita.rafa@gmail.com**
+- 📫 How to reach me **mailto:nantita.rafa@gmail.com**
 
 - ⚡ Fun fact **I don't even know why I did this**
 
